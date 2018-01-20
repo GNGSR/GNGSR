@@ -1,2 +1,2 @@
 # GNGSR
-Every human as a bit of gangster in them! - GNGSR - The Source
+Every human has a bit of gangster in them! - GNGSR - The Source
